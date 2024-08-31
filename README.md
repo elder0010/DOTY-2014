@@ -1,4 +1,4 @@
-# Demo of the year 2014 invitation
+# Call of DOTY
 
 ![Doty 2014](http://www.elder0010.com/uploads/screenshots/doty2014.png "Doty 2014")
 
